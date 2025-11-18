@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on any repository where I'll use my skills to contribute in open source environment.
 - 📫 sdesairth018@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
 
 <!---
 samarth-desai-18/samarth-desai-18 
